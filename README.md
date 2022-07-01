@@ -1,0 +1,1 @@
+# second-hand-goods-trading
